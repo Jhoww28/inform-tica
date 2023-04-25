@@ -5,3 +5,11 @@ Ana Júlia | Jonathan | Isabela
 |   |               | Jocemar
 |   |               | João Gabriel
 |   |               | Caliel
+
+:smile:
+
+[meu gihthub] (https://start.atlassian.com/)
+
+**jonathan**
+
+[jira software] (https://icon-icons.com/pt/icone/atlassian-jira-logo/170512)
