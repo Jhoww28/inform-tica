@@ -12,4 +12,6 @@ Ana Júlia | Jonathan | Isabela
 
 **jonathan**
 
-[jira software] (https://icon-icons.com/pt/icone/atlassian-jira-logo/170512)
+[jira software] (https://icon-icons)
+
+
