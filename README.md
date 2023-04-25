@@ -12,6 +12,7 @@ Ana Júlia | Jonathan | Isabela
 
 **jonathan**
 
-[jira software] (https://icon-icons)
+! [jira software](https://salesdorado.com/wp-content/uploads/2022/06/Jira-Logo.png.webp)
+
 
 
